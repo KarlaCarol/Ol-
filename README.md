@@ -1,4 +1,4 @@
-# Ol-
+# Olá!
 Olá, sou Karla tenho 26 anos, estou ingressando em um novo mundo encantador.
 Comecei faz algum tempo mas estava aprendendo sozinha, agora entrei em um curso para melhor estudo
 e para melhor desenvolvimento profissinal.
